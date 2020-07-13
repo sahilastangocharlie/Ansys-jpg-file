@@ -1,0 +1,1 @@
+# Ansys-jpg-file
